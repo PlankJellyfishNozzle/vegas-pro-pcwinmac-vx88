@@ -1,4 +1,4 @@
-# 
+# Personalizado Vegas Pro plugins para Mac OS | Profesional Vegas Pro plugins para PC Windows. Con edición por proxy y máquina de ritmos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
